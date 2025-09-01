@@ -6,8 +6,6 @@ Practice Repo for 517
 
 # The Importance of Mental Health 
 
-## Why Mental Health 
-
 ### What Can We Do
 
 ### Seeking Help
