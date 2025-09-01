@@ -11,6 +11,11 @@ Society has normalised the stigmatistion of mental health conditions. It's high 
 
 ## Seeking Help
 
+As students of NC State, we can reach out to
+[Campus Health](https://counseling.dasa.ncsu.edu/) and schedule appointments for councelling sessions . 
+
+Students can also reacg out to [prevention services](https://prevention.dasa.ncsu.edu/) for additional help and guidance. 
+
 ## What We Must Do as a Community 
 
 ## Prevention of Crisis
