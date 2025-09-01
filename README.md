@@ -12,8 +12,6 @@ Practice Repo for 517
 
 ### Seeking Help
 
-### Being a Community 
-
-### Doing Our Part 
+### Doing Our Part as a Community
 
 ## Conclusion 
